@@ -4,8 +4,12 @@
 °jensen ackles
 
 #Ator 2
-°jared padalecki
+°Matheus De Federico
 
 #Ator 3
 °Di Caprio
+
+#Ator 4
+°Mike Jordan      
+
 
