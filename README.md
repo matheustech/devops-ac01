@@ -11,6 +11,3 @@
 
 #Ator 4
 °Mike Jordan      
-
-#Musico 1
-° Wesley Safadao
